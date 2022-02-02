@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kento-T-JP
-- 👀 I’m interested in soccer
+- 👀 I’m interested in football
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on you
 - 📫 How to reach me is confidential lol
